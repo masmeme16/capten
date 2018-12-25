@@ -1,0 +1,1 @@
+bot caping multiple akun
